@@ -2,10 +2,8 @@
 
 # Simon is bob but simon forgets because bob forgets (confused face?)
 
-# Alice is a great partner to have.. (glad face)
+# ;ld'f;lksd';flskdf';lsdkf';lsdkf';sdlfks'd;flks'd;lfksd';flksd';lfksd';fkl
 
-# Bobbert is great (vibing face)
-
-# How is the Tiger King? (wondering face)
+# Did these lines conflict!?
 
 # This is Tanner's CHANGGGGGGGGGE
